@@ -1,0 +1,1 @@
+# Agentic-AI-Architectures-with-Patterns-Frameworks-and-MCP
